@@ -1,0 +1,1 @@
+# Decade-long-FTSE-dataset
